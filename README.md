@@ -2,4 +2,4 @@
 - 👀 I’m interested in u
 - 🌱 I’m currently learning...
 - 💞️ I’m looking to collaborate  w/ u
-- 📫 How to reach me? here's my gmail, morenomheryl@gmail.com.
+- 📫 How to reach me?
